@@ -1,0 +1,4 @@
+gkindustriesindia
+=================
+
+Visit our website: www.gkinternationals.webs.com Follow us on Twitter: www.twitter.com/gk_industries  This is the official page for GK Industries India on Facebook. We invite you to participate in the community of this page. Your opinions are important to us. We just ask that you follow these guidelines:  If you post a link, please provide some context. We will remove blind links. Personal attacks on other community members will not be tolerated. Do not post any personal information such as your email address or phone number. Language that is obscene, racist, sexist, or discriminatory in any way will be deleted. Please do offer advice to other community members, but do not portray yourself as a representative of the company if you are not one. Do not use our Facebook page to sell products, solicit money, or recruit fans, followers, and group members. Have fun, be polite, keep the conversation on topic.
